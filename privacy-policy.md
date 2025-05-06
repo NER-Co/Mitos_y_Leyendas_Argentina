@@ -70,7 +70,7 @@ Podemos actualizar esta política. Te notificaremos en la App o mediante la Play
 ## 8. Contacto
 
 Si tienes dudas o quieres solicitar eliminación de datos, escríbenos a:  
-**nerco980@gmail.com*  
+**info@ner-co.com*  
 
 ---
 
